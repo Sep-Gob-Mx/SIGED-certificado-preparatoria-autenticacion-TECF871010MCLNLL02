@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-TECF871010MCLNLL02
+TECF871010MCLNLL02
